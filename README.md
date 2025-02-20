@@ -21,6 +21,9 @@ Interpretation:
 
 4.AtliQ Hardwares need a new marketing strategy to increase the sales trend.
 
+Overview:
+![Snap](https://github.com/user-attachments/assets/916fffef-d4d7-452e-aee0-52256609470a)
+
 
 
 
